@@ -1,3 +1,5 @@
 # Hello-world
 
-i dont know what to do here 
+Hola Chicos,
+
+Soy Tatiana y vivo en paris, me gusta cocinar, bailar y jugar WOW!
